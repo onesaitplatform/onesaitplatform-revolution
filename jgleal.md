@@ -1,0 +1,5 @@
+# Este es un fichero de ejemplo
+
+Mi nombre es Javier González Leal y creo que la iniciativa **Onesait Revolution** era algo necesario. El mundo del desrrollo, sobre todo front, está avanzando a un ritmo vertiginoso y hasta ahora dentro de la compañía se trabaja muy compartimentado en proyectos, lo que lleva a que, muchas veces, lo que hace un departamento no lo conoce otro, siendo poco eficientes. El motivar a la comunidad de desarrolladores y crear un espacio común donde se traten temas temas técnicos y se promueva la innovación, es algo que repercutirá muy positivamente tanto en los profesionales como en los proyectos 
+
+Quiero participar en esta iniciativa porque me apasiona el desarrollo y las nuevas tecnologías en general. Me encanta profundizar y conocer las bases, para de esa forma poder tomar decisiones más sustentadas: no siempre lo último es lo mejor, ya que cada proyecto es un mundo.
