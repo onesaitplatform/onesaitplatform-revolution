@@ -1,0 +1,1 @@
+Ojalá se preparen más proyectos de este estilo, ya que me parecen iniciativas muy divertidas donde se aprende mucho. Participo porque creo que todos debemos fomentar este clima de buena convivencia y diversión dentro del trabajo.
