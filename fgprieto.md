@@ -1,0 +1,1 @@
+Mi nombre es Francisco Gomez y quiero participar en la iniciativa Onesait Platform. Mi objetivo principal es seguir mejorando y aprendiendo más.
