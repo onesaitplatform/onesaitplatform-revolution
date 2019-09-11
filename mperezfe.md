@@ -1,0 +1,2 @@
+
+Hola, mi nombre es Miguel Pérez y esta iniciativa de onesaitplatform me parece una apuesta interesante. Sería una buena forma de compartir los conocimientos entre todos los desarrolladores así como de seguir formándonos en nuevas áreas, por lo que me gustaría formar parte de esta plataforma.
