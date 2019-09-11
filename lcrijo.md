@@ -1,0 +1,1 @@
+Mi nombre es Luis Gaspar y quiero participar en la iniciativa Onesait Platform. Mis objetivos principales son mejorar como profesional y contribuir al crecimiento de la empresa.
