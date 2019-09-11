@@ -1,0 +1,1 @@
+Me parece interesante la iniciativa, permitirá compartir ideas de código que se pueden compartir y mejorar en grupo
