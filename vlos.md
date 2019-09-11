@@ -1,0 +1,3 @@
+# Presentación
+
+Mi nombre es **Visquel De Los Santos**, esta iniciativa de Onesait Platform revolution me parece super interesante, soy un joven apasionado con la tecnologia y las virtudes que esta nos ofrece. Me siento muy entusiasmado con este nuevo reto y espero dar lo mejor de mi para poder aportar de manera positiva a la empresa con esta iniciativa y tener la oportunidad de crear algo super innovador junto a colegas de la empresa.
