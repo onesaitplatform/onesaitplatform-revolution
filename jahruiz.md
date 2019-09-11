@@ -1,0 +1,1 @@
+Buen dia estoy muy interesado en particicipar en el concurso. Me parece muy interesante esta iniciativa ya que aporta a mi crecicimiento profesional. Siento que es una oportunidad para demostrar mis habilidades y aportar a la empresa.
