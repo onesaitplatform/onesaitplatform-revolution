@@ -1,2 +1,9 @@
-Hi i'm Matteo Lucarelli from Rome ( Italy ).
-I'm very happy to be in Minsait and to be in this "revolution"
+Hi,
+i'm Matteo Lucarelli from Rome ( Italy ).
+I'm very happy to be in Minsait.
+
+--------
+
+Ciao a tutti,
+sono Matteo Lucarelli da Roma ( Italia ).
+Sono molto felice di essere in Minsait.
