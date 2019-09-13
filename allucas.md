@@ -1,0 +1,1 @@
+¡Buenas! Estoy encantado de participar en esta iniciativa para mejorar la plataforma Onesait, una plataforma que uso diariamente y que da vida a muchísimos productos dentro de Minsait. Aportar a esta plataforma de código abierto hará mi día a día más sencillo.
