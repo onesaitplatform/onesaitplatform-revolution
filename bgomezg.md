@@ -1,0 +1,1 @@
+Soy Bruno Gómez García, no tengo muy claro en que consiste la iniciativa. Aun así creo que puede ser interesante superar diferentes retos para incrementar el conocimiento y poder colaborar con otras personas.
