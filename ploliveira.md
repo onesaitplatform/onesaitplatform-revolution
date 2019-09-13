@@ -1,0 +1,1 @@
+Soy Pedro Senos de Portugal, parece muy interesante esta iniciativa para aprender nuevos conceptos.
