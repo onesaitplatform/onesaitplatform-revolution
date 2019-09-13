@@ -4,7 +4,7 @@
 
 La iniciativa de Minsait de poner a disposición de todos una Community Edition de su plataforma digital me parece excelente, y pienso que con todos los aportes que se recibirán se acelerará el desarrollo y consolidación de la misma.
 
-##Onesait Platform revolution
+##Onesait Platform Revolution
 
 La iniciativa de realizar un desafío para activar a los desarrolladores de Minsait es genial. 
  
