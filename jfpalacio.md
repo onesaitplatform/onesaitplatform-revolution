@@ -1,0 +1,1 @@
+Me interesa conocer el progreso y utilidad de nuevas tecnologías, como también apoyar los eventos de la empresa recibiendo esto como una oportunidad para aprender. Gracias.
